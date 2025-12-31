@@ -1,10 +1,7 @@
 # Umit Sener
 
 Sr. Data & AI Specialist @ Microsoft**
-*Bridging the gap between Enterprise Architecture and State-of-the-Art Generative AI*
-
-
----
+*Bridging the gap between frontier AI technology and real-world enterprise needs.*
 
 ### 🚀 What I do
 
