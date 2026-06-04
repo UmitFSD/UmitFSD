@@ -1,6 +1,6 @@
 # Umit Sener
 
-Sr. Data & AI Specialist @ Microsoft**
+Sr. Data & AI Sales Specialist @ Microsoft**
 *Bridging the gap between frontier AI technology and real-world enterprise needs.*
 
 ### 🚀 What I do
